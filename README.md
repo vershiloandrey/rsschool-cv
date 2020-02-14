@@ -1,2 +1,1 @@
-# rsschool-cv
-Repository for studying at RSschool
+https://your-github-account.github.io/rsschool-cv/cv
