@@ -1,6 +1,6 @@
 ## Andrey Vershilo
 ### Contacts:
-* 375 33 337 21 14
+* + 375 33 337 21 14
 * vershiloandrey@gmail.com
 * [vk](https://vk.com/vershiloandrey)
 ### Goal:
